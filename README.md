@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ... web develpoment 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... via mail: sujeetkumarsaroj@zohomail.com and visit website: https://sites.google.com/view/SujeetKumarSaroj
+- 📫 How to reach me ... via mail: sujeetkumarsaroj@zohomail.in and visit website: https://sites.google.com/view/SujeetKumarSaroj
 - 😄 Pronouns: ... He
 - ⚡ Fun fact: ... I'm Intrasting 
 
